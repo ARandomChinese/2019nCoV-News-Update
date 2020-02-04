@@ -6,6 +6,12 @@
 
 武汉协和医院与红十字会相关新闻统一整合在1月31日事件
 
+附件：
+
+https://drive.google.com/file/d/1PZ9kZjVHrYhNt_STDkp4bvDlAAew8_M-/view?usp=sharing
+
+23-26日所有求取爱心捐赠的医院信息存档
+
 Reference:
 
 微博《武汉肺炎暗与明》（注：本条微博原博已消失，无法找到作者，对我的抄袭特此致歉）
