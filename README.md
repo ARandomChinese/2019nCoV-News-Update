@@ -15,3 +15,9 @@ Reference:
 微信公众号文章：
 
 《给你看看红会的魔幻主义显示，CTMD》
+
+推荐阅读：
+
+https://drive.google.com/drive/folders/1tJzt1QrzBOZimg-HG_N7kaco6NnZ4a7-
+
+本次事件所有深度报道的google drive存档，感谢博主声几右石
