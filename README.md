@@ -1,4 +1,4 @@
-# WuhanCoV-News-Update
+# 2019nCoV-News-Update
 
 武汉肺炎时间线个人整理与归档
 
